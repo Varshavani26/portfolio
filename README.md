@@ -1,4 +1,4 @@
-**portfolio of Varsha Dani Danaboyina**
+**portfolio of Varsha Vani Danaboyina**
 
 **DEMO: **
 
