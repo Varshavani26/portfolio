@@ -1,4 +1,4 @@
-<<<<<<< HEAD
+<<<<<<< 
 hello welcome to varsha danboyina's portfolio
 =======
 **portfolio of Varsha Vani Danaboyina**
